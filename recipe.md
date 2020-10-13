@@ -1,0 +1,1 @@
+first make the cake base mix the eggs, water, vanilla extract, baking powder, flour, butter and chocolate cake mix together in a bowl. Next, bake it in the stove, when its done put the icing on the cake.
